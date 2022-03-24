@@ -152,3 +152,9 @@ You might notice that I work for Microsoft but Notepads is my personal project t
 
 ## Stay tuned 📢:
 * [Notepads Discord Server](https://discord.gg/VqetCub)
+
+
+
+
+
+KT is here
